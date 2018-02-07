@@ -1,2 +1,2 @@
-Hei, vi er gruppe 78!
+Hei, vi er gruppe 76!
 
